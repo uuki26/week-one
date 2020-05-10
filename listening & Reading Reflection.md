@@ -1,4 +1,4 @@
-leanring how to learn, and how to figure out what you should to do , and telling a compelling stories. 
+learning how to learn, and how to figure out what you should do , and telling a compelling stories. 
 
 learning outcome is to understanding how historical perspective changes the relationship with the history tools.
 
